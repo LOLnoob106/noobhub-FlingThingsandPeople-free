@@ -1,1 +1,0 @@
-# noobhub-FlingThingsandPeople-free
